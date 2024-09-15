@@ -1,9 +1,9 @@
 
-# 更多免费软件关注公众号领取
+# 免费软件关注公众号领取
 ![image](https://github.com/user-attachments/assets/8fccc53f-858e-4aee-9ec8-b04aa0e168f7)
 
 
-# 软件目录演示
+# 软件目录查看，需要关注后自取
 ![image](https://github.com/user-attachments/assets/3d4b3683-d29a-45f6-9c24-75d787fb4665)
 ![image](https://github.com/user-attachments/assets/5d7e8380-0988-4b08-9faa-b351f547816d)
 ![image](https://github.com/user-attachments/assets/31e3cd83-1cff-42b7-93ba-c256797a11ad)
